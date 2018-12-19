@@ -3930,5 +3930,4 @@
 <a href="http://sparepartalatberat.com/caterpillar.html"> </a>
 <a href="http://sparepartalatberat.com/komatsu.html"> </a>
 <a href="http://sparepartalatberat.com/kobelco.html"> </a>
-<a href="http://sparepartalatberat.com/hitachi.html"> </a>
 
